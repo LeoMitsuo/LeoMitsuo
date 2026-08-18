@@ -1,2 +1,2 @@
-# LeoMitsuo1
+# LeoMitsuo
 1
